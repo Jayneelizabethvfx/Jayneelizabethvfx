@@ -4,7 +4,7 @@
   Creating 3D assetes, Learning New Languages and Cultures
 
 - 🌱 I’m currently learning
-   Games Design/Development, Character Sculpting, Japanese, Korean and Italian Language
+   Games Design/Development,Character Sculpting, Japanese, Korean and Italian Language
      
 - 💞️ I’m open to collaborations 
 
